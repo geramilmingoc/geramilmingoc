@@ -8,7 +8,7 @@
 -  I firmly believe that with your kind help I can achieve my Dream of becoming a Data Analyst which If granted, I will pass on to the next person who like me,
 -  is willing to be a data analyst but does not have the finances to attend a course.
 -  If you want me to become your assistant, helper or volunteer all for FREE,.. please do email me at
--   geramil.mingco@gmail.com
+-   geramil.mingoc@gmail.com
   
 
 <!---
