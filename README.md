@@ -5,7 +5,7 @@
 - I can be a good assistant, an associate, or a volunteer to take on the extra loads you have in your work analyzing Data. All for FREE...and all for the sake of experience.
 - Best of all I can also be a Good Friend.
 - I do believe that experience and "hands-on" is the best Foundation for A Good data analyst.
--  I firmly believe that with your kind help I can achieve my Dream of becoming a Data Analyst which If granted, I will pass on to the next person who like me,
+-  I firmly believe that with your kind help, I can achieve my Dream of becoming a Data Analyst which If granted I will pass on to the next person who like me
 -  is willing to be a data analyst but does not have the finances to attend a course.
 -  If you want me to become your assistant, helper or volunteer all for FREE,.. please do email me at
 -   geramil.mingoc@gmail.com
